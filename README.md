@@ -6,17 +6,17 @@ Joaovitorleising@gmail.com
 
 EXPERIÊNCIA
 AUXILIAR DE CAIXA, ANGELONI 
-4 Meses de contrato
+1 ano e 4 Meses de contrato
 EDUCAÇÃO
 
 ENSINO FUNDAMENTAL, COLEGIO SALVATORIANO NOSSA SENHORA DE FATIMA
 Concluído
 
 ENSINO MÉDIO, SESI SENAI
-Cursando 2°Ano
+Cursando 3°Ano
 
 CURSO TECNICO EM DESELVOLVIMENTO DE SISTEMAS, SESI SENAI
-Cursando 1°Fase
+Cursando 2°Fase
 
 HABILIDADES
 •	Boa Comunicação
